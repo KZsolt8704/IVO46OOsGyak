@@ -1,0 +1,1 @@
+A feladatokban felhasznált képek.
